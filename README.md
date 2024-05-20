@@ -1,1 +1,2 @@
-# Portfolio
+👋 Hi, I’m @NermineOurimi 👀 I’m passionate about artificial intelligence and its applications in various domains. 🌱 I’m currently enhancing my expertise in machine learning and deep learning by applying them to real-world projects. I’m looking to collaborate on innovative projects related to AI, ML, and DL. How to reach me: You can connect with me on LinkedIn: www.linkedin.com/in/nermine-ourimi-20s01
+
